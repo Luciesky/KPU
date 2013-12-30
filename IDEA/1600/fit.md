@@ -5,7 +5,6 @@ IDEA 1600, Drumming, Percussion, and Creative Music-Making in the Community
 
 ### Brief Description of Course
 
-
 Learners will explore drumming, percussion, and creative music-making within an expressive arts context. They will develop music performance skills, explore the practices of percussion-oriented communal music-making, and will participate in performances with communities within and beyond KPU.
 
 ### Program Fit
