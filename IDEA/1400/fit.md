@@ -71,9 +71,11 @@ There is also strong demand from current learners at KPU. Every semester, the ID
 
 The IDEA steering committee has also highlighted performance and theatre curriculum as priorities. Such curriculum fills a current gap in our offering. The discipline of Expressive Arts utilizes a suite of modalities that typically includes art, music, movement, writing, storytelling, craft, nature experience, drama improvisation, and theatre performance. At the moment, our curricular offerings include all of these modalities except theatre performance.
 
-### Consultation
+### Consultations
 
 We have consulted with KPU's President, with the Dean of Arts, with our internal IDEA faculty cohort, with the Surrey School District, with colleagues among various departments at KPU, with colleagues teaching high school theatre curriculum, and with learners at KPU. All of these consultations have resulted in unequivocal support for the course.
+
+Several faculty colleagues have expressed interest in having students from IDEA 1400 perform in their classes. These colleagues include Tracey Kinney (History), Sam Migliore (Anthropology), Amir Mirfakhraie (Sociology), Wendy Smith (English), and Jennifer Williams (English). Additionally, Lucie Gagne (Design), Aaron Bushkowsky (Creative Writing), and Nicola Harwood (Creative Writing) have expressed strong interest in possible collaborations with this course.
 
 Once the course is approved, we will meet further with high school theatre teachers to forge a working relationship that will allow us to perform for high schools. This initiative will be facilitated by the fact that many of the KPU students enrolled in the course will have taken theatre at local high schools. In addition, once we have developed dramatic material appropriate for elementary school students, we will approach elementary schools with the goal of performing for them.
 
