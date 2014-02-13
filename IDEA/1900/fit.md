@@ -1,5 +1,7 @@
 ### Hart: Work on this one, not the other one!
 
+Suggestions: we need an answer to every main header. You can probably just change the Theatre language to Outdoor experience language in almost all of these sections. The courses are actually very similar. The only area where you will need to write a new answer is (I think) for the Evidence of Demand area. Oh, and for Consultations also. 
+
 
 ### Course Acronym, Number, and Title
 
